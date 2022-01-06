@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @warpbeam
+- 👋 Hi, I’m @warpbeam Raimundas Sereika, Founder of the WarpBeam project
 - 👀 I’m interested in ...
 Coming soon
 
