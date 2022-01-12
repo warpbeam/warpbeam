@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @warpbeam Raimundas Sereika, Founder of the WarpBeam project
-- 👀 I’m interested in ...
+- 👀 I’m interested in Space Entertainment...
 Coming soon
 
 <!---
